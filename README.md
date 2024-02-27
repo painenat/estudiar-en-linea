@@ -1,8 +1,8 @@
-Estudiar en línea, también conocido como educación a distancia o e-learning, ha experimentado un crecimiento exponencial en las últimas décadas gracias al avance de la tecnología y la accesibilidad a internet. Esta modalidad educativa ofrece una serie de ventajas y desafíos que vale la pena considerar.
+[estudiar en linea](https://unifacil.online/), también conocido como educación a distancia o e-learning, ha experimentado un crecimiento exponencial en las últimas décadas gracias al avance de la tecnología y la accesibilidad a internet. Esta modalidad educativa ofrece una serie de ventajas y desafíos que vale la pena considerar.
 
 Ventajas: 
 
-    Flexibilidad de horarios: Una de las mayores ventajas de [estudiar en linea](https://unifacil.online/) es la capacidad de adaptar el horario de estudio a las necesidades individuales. Los estudiantes pueden acceder a los materiales de aprendizaje en cualquier momento y desde cualquier lugar con conexión a internet, lo que les permite conciliar el estudio con otras responsabilidades como el trabajo o la familia.
+    Flexibilidad de horarios: Una de las mayores ventajas de estudair en linea es la capacidad de adaptar el horario de estudio a las necesidades individuales. Los estudiantes pueden acceder a los materiales de aprendizaje en cualquier momento y desde cualquier lugar con conexión a internet, lo que les permite conciliar el estudio con otras responsabilidades como el trabajo o la familia.
 
     Variedad de cursos y programas: La educación en línea ofrece una amplia gama de cursos y programas académicos, desde certificados y diplomas hasta títulos universitarios completos. Esto permite a los estudiantes acceder a una educación de calidad en áreas específicas sin importar su ubicación geográfica.
 
